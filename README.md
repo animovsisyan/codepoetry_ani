@@ -1,7 +1,7 @@
 The Second Coming
 ================
 
-by William Yeats
+by William Butler Yeats
 ---------------
 
 
